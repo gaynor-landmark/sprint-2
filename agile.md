@@ -1,0 +1,3 @@
+Agile Reflections
+
+I have worked in and Agile environment, using Scrum and generally I liked it, and found it an easy flow to work with.  It is so much more fun to be working with a team to achieve a goal.  Working alone can make you feel very isolated.  However, teams are made up of real people, so the reality is not quite as simple as the articles and vidoes portrayed.  For Agile to achieve its goal of high functioning teams, trust and motivation are essential.  Having lazy team members, being under-resourced, and then subtly punished for not completing the planned work in a sprint can all destroy the trust and motivation that is so necessary to be successful. Being able to build trust and motivate is a rare skill indeed. (I guess I have some emotional baggage here.)
