@@ -1,0 +1,6 @@
+Gender-Neutrality
+
+a) What do I think?
+For me, the context of the language is important.  In the business world, I think gender neutrality is far more important than in personal life.  Everyone should be treated with respect.  The article seems a little biased towards making women feel equal, while sometimes women can make men feel very inadequate in certain situations.  I am surprised that the author(s) feel that female children can be called 'girls' not just children. Are children to young for it to matter?  To summarise how I feel - I think this is a little over the top for everyday life.  I love my role as a wife and as a mother.  :-)
+b) Do I make an effort to use gender neutral language?  Probably not.  However, I do make an effort to treat everone with respect, so I if I thought that I could be causing offense, I would definitely be more careful.
+c) What do I think when I hear non-gender-neutral language?  To be quite honest, I don't think about it at all.  I have no problem interpreting 'mankind' as 'humankind'.  I try not to be easily offended.  Intention is far more important.  Treating someone with disrespect while saying the right words what I find offensive.
